@@ -23,6 +23,8 @@
 
 ◌•◌• cuphead 
 
+◌•◌• bendy and the ink machine
+
 ◌•◌• little nightmares 
 
 ◌•◌• hollow knight 
