@@ -1,5 +1,5 @@
-# - more on opal ! - ✩
-⋆｡°✩ i mostly go by opal , but i dont mind any nicknames you have for me, as long as they're not offensive of course.⋆｡°✩ they / them prns preffered , i'm italian aswell as black. 
+# - more on noi ! - ✩
+⋆｡°✩ i mostly go by noi or opal , but i dont mind any nicknames you have for me, as long as they're not offensive of course.⋆｡°✩ they / them prns preffered , i'm italian aswell as black. 
 
 ⋆ i'm into a lot of games, such as roblox, minecraft, five night's at freddy's , the papa games franchise , terraria , hollow knight ,  and more ! if you're ever curious ask me and i'll tell ya ^_^ ⋆
 
