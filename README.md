@@ -7,8 +7,6 @@
 
 ⋆｡  raised in NY, ♏ , bday nov. 9th ! 
 
-⋆｡  i'll respect all ships, just please don't harass me for mine and we'll be ay-okay . ( besides proshippers and anything else illegal </3 ) i'll also match any sibling , ship duo just lmk<3 ( mostly for pt ) 
-
 ⋆｡ i can be pretty silly at times, as its mostly one of my personality trait's, im a bit childish, aswell as moody. i can also say some pretty out of pocket things, so please let me know if it discomforts you ⋆｡
 
 ˖*°࿐ *ੈ✩‧₊˚ ✧˖*°࿐
