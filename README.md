@@ -3,7 +3,7 @@
 
 ⋆ i'm into a lot of games, such as roblox, minecraft, five night's at freddy's , the papa games franchise , terraria , hollow knight ,  and more ! if you're ever curious ask me and i'll tell ya ^_^ ⋆
 
-⋆｡ i'm a lazy artist, i don't draw a lot like i used to, but i'd love getting back into it sooner or later, if you ever have art requests, or want to draw together dont be afraid to let me know, i'd love to do anything dealing with art ! , i'm also thinking of making pt skin's for people. ⋆｡
+⋆｡ i'm a lazy artist, i don't draw a lot like i used to, but i'd love getting back into it sooner or later, if you ever have art requests, or want to draw together dont be afraid to let me know, i'd love to do anything dealing with art. ⋆｡
 
 ⋆｡  raised in NY, ♏ , bday nov. 9th ! 
 
