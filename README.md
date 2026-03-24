@@ -87,5 +87,5 @@ yuhh thats it, anyways pls be moots with me im so cool and epic and and , yeees 
  ´ˎ ˗ ❁˖⁺‧₊˚❁˚₊‧⁺˖˖⁺‧₊˚
  ![image_2025-03-15_132331707](https://github.com/user-attachments/assets/a8a6ee69-2a33-46fe-b218-a649c8c1580f)
 
- ´ˎ ˗ ❁˖⁺‧₊˚❁˚₊‧⁺˖˖⁺‧₊˚ they are me by the way <3 ( NO IT ISNT A SHIP, THEY ARE ME. ) 
+ ´ˎ ˗ ❁˖⁺‧₊˚❁˚₊‧⁺˖˖⁺‧₊˚ they are me by the way<3 ( comfort chars ) ^_^
 
