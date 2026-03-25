@@ -1,4 +1,4 @@
-# - more on noi ! - ✩
+# - more on me ^.^ haii  ! - ✩
 ⋆｡°✩ i mostly go by noi or opal , but i dont mind any nicknames you have for me, as long as they're not offensive of course.⋆｡°✩ they / she prns preffered , i'm italian, mexican aswell as black. 
 
 ⋆ i'm into a lot of games, such as roblox, minecraft, five night's at freddy's , the papa games franchise , terraria , hollow knight ,  and more ! if you're ever curious ask me and i'll tell ya ^_^ ⋆
@@ -13,7 +13,7 @@
 
 ⋆｡  interests i have ( fandoms , etc. pls int <3 )
 
-◌•◌• dandy world 
+◌•◌• p-pony...town. .? 
 
 ◌•◌• regretevator 
 
@@ -55,6 +55,8 @@
 *°࿐ lana del rey 
 
 *°࿐ mother - mother 
+
+*°࿐ the scary jokes 
 
 *°࿐ roar 
 
