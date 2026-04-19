@@ -82,6 +82,10 @@
 
 *°࿐ insane clown posse 
 
+*°࿐ my chemical romance
+
+*°࿐ pierce the veil 
+
 ˖*°࿐ *ੈ✩‧₊˚ ✧˖*°࿐
 
 yuhh thats it, anyways pls be moots with me im so cool and epic and and , yeees 🥳
